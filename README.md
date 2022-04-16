@@ -2,7 +2,7 @@
 - 👀 I’m interested in gaming, game designing, video editing etc
 - 🌱 I’m currently learning game designing
 - 💞️ I’m looking to collaborate on Game making projects
-- 📫 You can reach me on discord: Sklyrax#5296 or on instagram: @i.be.hamza
+- 📫 You can reach me on discord: Sklyrax#5296 or on instagram: @huzuai
 
 
 <!---
